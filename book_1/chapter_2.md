@@ -31,7 +31,7 @@ Once clothed he made his way down the hall into the kitchen. The table was smol 
 
 Probably had something to do with living in a dark cupboard, but Harry had always been smol and skinny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was about four times as thicc as him. He wore round glasses held together with a lot of Scotch tape because of all the times he had caught Dudley's hands. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember, and the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
-"When your parents wrecked their whip and died," she had said. "And don't ask questions."
+"When ur mom wrecked her whip and died," she had said. "And don't ask questions."
 
 Don't ask questions - that was the number one rule for living a basic life with the Dursleys.
 
@@ -99,11 +99,11 @@ Dudley began to wail. Fact, he wasn't really crying - it had been years since he
 
 "I ... don't... want... him... t-t-to come!" Dudley gasped for air between huge, pretend sobs. "He always sp-spoils everything!" He shot Harry a nasty grin through the gap in his mother's arms. 
 
-Just then, the doorbell rang - "Oh, sweet baby Jesus, they're here!" said Aunt Petunia frantically - and a moment later, Dudley's bff, Piers Polkiss, walked in with his mom. Piers was a scrawny boi with a face like a rat. He was usually the one who held people's arms behind their backs while Dudley threw hands. Dudley stopped pretending to cry at once.
+Just then, the doorbell rang - "Oh, sweet baby Jesus, they're here!" said Aunt Petunia frantically - and a moment later, Dudley's bestie, Piers Polkiss, walked in with his mom. Piers was a scrawny boi with a face like a rat. He was usually the one who held people's arms behind their backs while Dudley threw hands. Dudley stopped pretending to cry at once.
 
 Half an hour later, Harry, who couldn't believe his luck, was sitting in the back of the Dursley's car with Piers and Dudley, on the way to the zoo for the first time in his life. His aunt and uncle hadn't been able to think of anything else to do with him, but before they'd left, Uncle Vernon had pulled Harry aside. 
 
-"I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any funny business, anything at all - and you'll be in that cupboard from now until Christmas."
+"I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any sussy business, anything at all - and you'll be in that cupboard from now until Christmas."
 
 "I'm not going to do anything bro," said Harry. "Legit..."
 
@@ -127,7 +127,7 @@ While he drove, Uncle Vernon complained to Aunt Petunia. He liked to complain ab
 
 Uncle Vernon nearly crashed into the car in front. He turned right around in his seat and yelled at Harry, his face like a giant beet with a mustache: "MOTORCYCLES DON'T FLY DUDE"
 
-Dudley and Piers were laughing their asses of. 
+Dudley and Piers were laughing their asses off. 
 
 "I know they don't," said Harry. "It was only a dream."
 
